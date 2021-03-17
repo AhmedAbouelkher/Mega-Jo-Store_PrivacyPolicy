@@ -1,1 +1,0 @@
-# Mega-Jo-Store_PrivcayPolicy
